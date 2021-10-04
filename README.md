@@ -1,1 +1,0 @@
-# medved-bear-dekolu8a87n
